@@ -1,16 +1,13 @@
-### Hi there 👋
-
-<!--
-**giselli06/giselli06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-hola meu nome é giselli da conceição :)
+-estudo no colegio luiz zampronio
+-torço para o time do corinthians
+-tenho 16 anos
+- adoro animais:)
+-adoro andar de moto,pretendo aprender a andar de carro
+- predendo aprender a nadar ainda esse ano
+- amo fazer passeios piquiniques com meu marido:)
+- adoro  desenhar
+- quero ser uma mulher endependente de minhas financias
+- 
+- 
+- 
