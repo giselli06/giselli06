@@ -1,13 +1,14 @@
--hola meu nome é giselli da conceição :)
--estudo no colegio luiz zampronio
--torço para o time do corinthians
--tenho 16 anos
-- adoro animais:)
--adoro andar de moto,pretendo aprender a andar de carro
-- predendo aprender a nadar ainda esse ano
-- amo fazer passeios piquiniques com meu marido:)
-- adoro  desenhar
-- quero ser uma mulher endependente de minhas financias
-- 
-- 
-- 
+- 🙋🏻‍♀️ Hola meu nome é giselli da conceição :)
+- 🤓 Estudo no colegio luiz zampronio
+- 🤍🖤 Torço para o time do corinthians
+- 😊 Tenho 16 anos
+- 🐶🐾 Adoro animais:)
+- 🚀💥 Adoro andar de moto,pretendo aprender a andar de carro
+- 🏊‍♀️ Predendo aprender a nadar ainda esse ano
+- 👩🏻‍❤️‍👨🏻 Amo fazer passeios piquiniques com meu marido:)
+- 🎨 Adoro  desenhar
+- 👩🏻‍🎓 Quero ser uma mulher endependente de minhas financias
+- 🌠🌌 Adoro ver as estrelas
+- 🌺🥀 Adoro a natureza principalmente as flores
+- 😤 As vezes sou brava
+- 🫀 Tanbem sou muito romantica
